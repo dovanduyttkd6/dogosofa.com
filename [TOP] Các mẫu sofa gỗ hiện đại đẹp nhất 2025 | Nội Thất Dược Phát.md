@@ -9,6 +9,7 @@
 ---
 
 ## 1. Đặc Điểm Nổi Bật Của Sofa Chân Thuyền Phun Màu Óc Chó
+![Sofa Chân Thuyền Phun Màu Óc Chó](https://noithatdangkhoa.com/wp-content/uploads/2024/06/bo-ban-ghe-phong-khach-sofa-dui-ga-2-vang-sfdk102-1.jpg)
 
 ### 💩 Chất liệu gỗ tự nhiên cao cấp  
 - Được làm từ **gỗ hương đá, gỗ gõ đỏ hoặc gỗ sồi** chắc chắn, tuổi thọ cao.  
